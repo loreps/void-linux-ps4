@@ -1,2 +1,2 @@
-THE .patches ARE WRITTEN BY @dionkill !!!!!!!!!!!!!!!!
+THE .patches ARE WRITTEN BY @dionkill !
 
